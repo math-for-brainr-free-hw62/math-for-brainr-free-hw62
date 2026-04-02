@@ -1,4 +1,4 @@
-
+excl steal a brainrot Scripts | auto-steal + inv-mode is the ultimate solution for steal a brainrot players! Our scripts provide auto-steal and inv-mode, ensuring you dominate every match. No bans, no lags—just pure gaming excellence. Join thousands of satisfied users and elevate your steal a brainrot experience today!
 
 
 ---
